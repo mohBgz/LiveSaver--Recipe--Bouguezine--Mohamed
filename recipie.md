@@ -14,7 +14,7 @@ So you're stuck in this ***again*** , you opened up the frigde ***hoping*** to f
 
 That's __sad__ i know :pensive:, the next thing you're thinking of is to find some __tuna__ and ***Yess !***  you find one !!!
 
-![dream come true](./tuna_dream.png )
+![dream come true](https://topribejaia.com/wp-content/uploads/2021/07/Thon-A-La-Tomate-Atun-Maratun-Triplette.jpg )
 **Now you're so happy** :partying_face::partying_face: , until your remember that **No bread is left :/** 
 , __plus__ It's dinner time so it's so difficult to find where to get it  .
 
