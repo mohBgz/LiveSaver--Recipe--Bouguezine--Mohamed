@@ -8,16 +8,17 @@ to do list :
 - google slide & ideathon
 
 
-## *Stroy Time*
+## *Stroy Time* :drum::drum:
 
-So you're stuck in this ***again*** , you opened up the frigde ***hoping** to find something to **quite** youre **hunger** , but all you found is some vegitable **...cringe** , you take a look on your right-top side hoping again to find some eggs to cook, **unfortenatlly** no eggs for you today **:/,** and let's just **git_igonre** the **half lemonade** allways chilling there **for no reason !!**
+So you're stuck in this ***again*** , you opened up the frigde ***hoping*** to find something to **quiet** youre **hunger** , but all you found is some vegetables :broccoli: "**cringe**" , __you take a look at your right-top side__:eyes: hoping again to find some eggs to cook, **unfortenatlly** no eggs for you today :pensive:, and let's just ***git_igonre*** the **half lemonade** allways chilling there **for no reason !!**
 
-That's __sad__ i know  **:"( ,** the next thing you're thinking of is to find some thona and ***Yess !***  you find one !!!
+That's __sad__ i know :pensive:, the next thing you're thinking of is to find some __tuna__ and ***Yess !***  you find one !!!
 
-**Now you're so happy** , until your remember that **No bread is left :/** 
-It's dinner time so it's so difficult to find where to get it  .
+![dream come true](./tuna_dream.png )
+**Now you're so happy** :partying_face::partying_face: , until your remember that **No bread is left :/** 
+, __plus__ It's dinner time so it's so difficult to find where to get it  .
 
-**At** this moment you're **so frustrated** , you decide to go out and get some junk food, __so__ **you close that damn empty frigde** and... __Wait, wait , waaaiiiittt !!__   
+**At** this moment you're **so frustrated** :weary:, you decide to go out and get some junk food, __so__ **you close that damn empty frigde** and... __Wait, wait,    **Waaaiiiittt** :heavy_exclamation_mark::heavy_exclamation_mark:  
 
 **Don't do that___ i'm here to help you out !!** , don't worry you're not going to watch ***oum-walid*** or anyone else , i've been there before and i totaly understand . So enought talikng for now, i know you're hungry, let's give you some ideas on what you can cook (except egges & indomi ) **in just 10 min or less !!!**
 
