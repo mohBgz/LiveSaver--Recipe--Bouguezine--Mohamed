@@ -1,13 +1,3 @@
-to do list :
-
--check sifo & N1 OMC 
-- envoie de fiche de Projet\
-- Git-hub homework
-  - translate
-  - emojies an images
-- google slide & ideathon
-
-
 ## *Stroy Time* :drum::drum:
 
 So you're stuck in this ***again*** , you opened up the frigde ***hoping*** to find something to **quiet** youre **hunger** , but all you found is some vegetables :broccoli: "**cringe**" , __you take a look at your right-top side__:eyes: hoping again to find some eggs to cook, **unfortenatlly** no eggs for you today :pensive:, and let's just ***git_igonre*** the **half lemon :lemon:** allways chilling there **for no reason !!**
